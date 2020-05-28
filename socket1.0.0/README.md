@@ -1,1 +1,1 @@
-To use linux or Windows
+To use Linux or Windows
